@@ -24,7 +24,7 @@
 
 
 
-ps: i have a cat named cookie 😸
+ps: i have a cat named cookie she looks like this 😸
 
        /\_/\
      = • . • =
