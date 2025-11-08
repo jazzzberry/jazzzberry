@@ -14,7 +14,7 @@
 ## **About falooli**
 - I'm a foodie & i sleep a lot 🍜 😴
 - I love cats meow meow 😻
-- I enjoy playing games and gardening 🪴🎮
+- I enjoy playing games & gardening & building gundams 🪴🎮
 
 
 ---
